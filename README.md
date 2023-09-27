@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @haileyhaft
+- 👀 I’m interested in data analysis, balcony gardening, and Zumba
+- 🌱 I’m currently learning programming languages and how to use them in professional and personal settings
+- 💞️ I’m looking to use my new skills in a professional capacity and lend my knowledge to a driven team
+- 📫 How to reach me: haileyhaft@gmail.com or linkedin.com/in/haileyhaft
